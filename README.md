@@ -7,7 +7,7 @@
 
 💬 Ask me about **DevOps Tools and Practices**
 
-📫 You can reach me at **aniket24796@gmail.com**
+📫 You can reach me at **aniket7.work@gmail.com**
 
 ⚡ Fun fact **We guys automate stuff**
 
